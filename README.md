@@ -1,5 +1,4 @@
 - 👋 Hi, I’m ritu
-- exploring the vast world of software development
 - 📫 How to reach me
 - mail me at: ritudakua17@gmail.com
 - connect with me: https://www.linkedin.com/in/ritu-dakua-a7049021b/
